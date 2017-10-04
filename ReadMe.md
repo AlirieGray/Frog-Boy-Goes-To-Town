@@ -8,4 +8,4 @@ Frog Boy takes his unicycle into town for an errand, but encounters trouble alon
 
 - Frog Boy: Lucio Dos Santos
 - Demon Queen: Hana "D. Va" Song
-- Salamander
+- Salamander: whoopi goldberg
