@@ -9,3 +9,7 @@ Frog Boy takes his unicycle into town for an errand, but encounters trouble alon
 - Frog Boy: Lucio Dos Santos
 - Toad Queen: Hana "D. Va" Song
 - Salamander: T-Pain
+- MEKA Queen: Hana "D. Va" Song
+- The Town Guard: Benadryl Cucumber
+- MEKA One: Will Smith
+- MEKA Two: Chris Pratt
